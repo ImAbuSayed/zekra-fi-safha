@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور العين في ليالي
+> يا سحر الروح يا غالي
+> في قلبي نار تشتعل
+> أريدك الآن في خيالي
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
